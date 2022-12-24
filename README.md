@@ -1,4 +1,4 @@
--<h1 align="center">Hi 👋, I'm CREDO.</h1>
+<h1 align="center">Hi 👋, I'm CREDO.</h1>
 
 <h3 align="center">A passionate frontend APP developer from India</h3>
 
