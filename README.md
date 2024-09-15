@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **credo.app.developper@gmail.com**
 
-- 📄 contact me 🗯️ [https://wa.me/+79309146113](https://wa.me/+9173566660975)
+- 📄 contact me 🗯️ [WhatsApp](https://wa.me/+9173566660975)
 
 <h3 align="left">Connect with me:</h3>
 
