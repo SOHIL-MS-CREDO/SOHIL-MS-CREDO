@@ -14,7 +14,7 @@
 
 - 📝 I regularly write articles on [https://techhackers100.blogspot.com](https://techhackers100.blogspot.com)
 
-- 📫 How to reach me **credo.app.developper@gmail.com**
+- 📫 How to reach me [Email](sohilms0975@gmail.com)
 
 - 📄 contact me 🗯️ [WhatsApp](https://wa.me/+9173566660975)
 
