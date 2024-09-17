@@ -10,7 +10,7 @@
 
 - 👯 I’m looking to collaborate on [TECH HACKERS](https://techhackers100.blogspot.com)
 
-- 👨‍💻 All of my projects are available at [https://linktr.ee/sohil_ms](https://linktr.ee/sohil_ms)
+- 👨‍💻 All of my projects are available at [Coming Soon](https://linktr.ee/sohil_ms)
 
 - 📝 I regularly write articles on [CREDO-STORE](https://credostore.in)
 
